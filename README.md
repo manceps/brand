@@ -1,2 +1,2 @@
 # brand
-Manceps Brand Collateral and Trade Marks. All rights reserved, Manceps, Inc.
+Manceps Brand Collateral and Trademarks. All rights reserved, Manceps, Inc.
